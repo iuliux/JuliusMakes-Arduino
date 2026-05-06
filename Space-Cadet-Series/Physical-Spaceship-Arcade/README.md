@@ -12,4 +12,4 @@ Hardware:
 
 ## Youtube link:
 
-TODO
+[![Physical Spaceship Arcade - SpaceCadet Ep01](https://img.youtube.com/vi/EnAbbKRL5Cc/0.jpg)](https://www.youtube.com/watch?v=EnAbbKRL5Cc)
