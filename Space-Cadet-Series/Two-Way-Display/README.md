@@ -8,4 +8,4 @@ Hardware (affiliate links):
 
 ## Youtube link:
 
-[![2 Way Display - SpaceCadet Ep02](https://img.youtube.com/vi/EnAbbKRL5Cc/0.jpg)](https://www.youtube.com/watch?v=EnAbbKRL5Cc)
+[![2 Way Display - SpaceCadet Ep02](https://img.youtube.com/vi/24Z8YVQKDAI/0.jpg)](https://www.youtube.com/watch?v=24Z8YVQKDAI)
